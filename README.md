@@ -27,4 +27,3 @@ La principal opcion por lo que siempre me ha interesado la informatica y demas e
 
 - [Linkedin.](https://www.linkedin.com/in/alvaro-manche%C3%B1o-ortiz-079253239?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - [Facebook.](https://www.facebook.com/manolo.rebec)
-
